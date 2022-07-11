@@ -2,7 +2,7 @@
 - 🔭 I’m currently working on Fivem projects and scripting creation
 - 🌱 I’m always looking for knowledge
 - 👯 I’m looking to collaborate on Fivem projects
-- 🤔 I’m looking for help everyone just DM me
+- 🤔 If you need just DM me
 - 💬 Ask me about whatever you want
 - 📫 You can contact me via discord (Lapardans #7460)
 - ⚡ Fun fact: I love classic music
